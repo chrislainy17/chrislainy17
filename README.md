@@ -8,6 +8,6 @@ me chamo chrislainy des souza 😸
 
 - chrislainydesouza1@gmail.com
 
-![](https://github.com/user-attachments/assets/30046bac-ea1e-4e29-9787-9b253186a3fa)
+![](https://media1.tenor.com/m/rupbXjbvSn4AAAAC/dwbyou-billie-waving.gif)
 
 
